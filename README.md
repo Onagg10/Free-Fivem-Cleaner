@@ -1,0 +1,4 @@
+# README
+1. FREE AND EASY TO USE
+2. CREATED BY ME (ONAGG)
+3. SUPPORT ME ON DISCORD (https://discord.gg/xkvWAx4WdE) 
